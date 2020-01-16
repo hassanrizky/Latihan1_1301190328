@@ -2,3 +2,5 @@
 cuma latihanSTD
 
 testes
+
+oke aj

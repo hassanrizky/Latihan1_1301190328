@@ -4,3 +4,5 @@ cuma latihanSTD
 testes
 
 oke aj
+
+bingung gua

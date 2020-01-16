@@ -7,6 +7,8 @@ oke aj
 
 bingung gua
 
-apasih ini 
+apasih ini
+
 gua ga tau bro
+
 aku

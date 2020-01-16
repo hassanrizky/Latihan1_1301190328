@@ -6,3 +6,7 @@ testes
 oke aj
 
 bingung gua
+
+apasih ini 
+gua ga tau bro
+aku

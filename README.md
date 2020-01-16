@@ -12,3 +12,5 @@ apasih ini
 gua ga tau bro
 
 aku
+
+selesai
